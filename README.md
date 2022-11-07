@@ -1,0 +1,1 @@
+# Otomatik-okto-f-nik-lere
